@@ -1,5 +1,3 @@
-### Hi there 👋
-
 <!--
 **Jo-Seungjun/Jo-Seungjun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -14,3 +12,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+# UfXpri
+
+헤에 저에대해 필요한건 직접 연락해주세요 ><
