@@ -15,4 +15,5 @@ Here are some ideas to get you started:
 
 # UfXpri
 
-헤에 저에대해 필요한건 직접 연락해주세요 ><
+헤에 저에대해 필요한게 있으면 연락해주세요 ><
+아직 페이지 작성중 입니다.
